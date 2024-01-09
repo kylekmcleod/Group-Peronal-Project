@@ -1,1 +1,1 @@
-A group project. Aaron, Matin and Kyle.
+A group project. Aaron, Justin, Matin and Kyle.
